@@ -1,1 +1,0 @@
-Air Mask with two filters - Mascherina con due filtri  + adattatore iso-gard filter  _ Upgraded rev 4.0 - Openmask - NEW VERSION !! by grennet on Thingiverse: https://www.thingiverse.com/thing:4217534
